@@ -1,4 +1,4 @@
-### Hi there - Welcome 👋
+### Hi there 👋
 
 
 - 🔭  _I’m currently working on technical sourcing & recruitment
